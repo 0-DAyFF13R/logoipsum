@@ -1,1 +1,1 @@
-Site: https://daffiersquare2.github.io/logoipsum/
+Site: https://0-dayff13r.github.io/slavia/
